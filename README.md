@@ -5,4 +5,4 @@ lets hangout with me!
 
 call me condor, and let me call you honey :*
 
-i like :music: :drum: :coffee: :pizza: :dance:
+i like :drum: :coffee: :pizza: :dancer:
