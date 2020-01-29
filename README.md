@@ -1,5 +1,8 @@
 # hello-condor
 this my first repo!
+
 lets hangout with me!
+
 call me condor, and let me call you honey :*
-test :music: :drum: :coffee: :pizza: :dance:
+
+i like :music: :drum: :coffee: :pizza: :dance:
