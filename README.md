@@ -1,2 +1,5 @@
 # hello-condor
-my first repo
+this my first repo!
+lets hangout with me!
+call me condor, and let me call you honey :*
+test :music: :drum: :coffee: :pizza: :dance:
